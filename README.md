@@ -8,3 +8,4 @@ Demontage
 worker of the year
 covid
 naggets of the year
+wedding
