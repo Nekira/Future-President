@@ -11,3 +11,4 @@ naggets of the year
 wedding
 hangover
 diasodi
+investing
