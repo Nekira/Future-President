@@ -10,3 +10,4 @@ covid
 naggets of the year
 wedding
 hangover
+diasodi
